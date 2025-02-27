@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+#### Currently Coding is my hobby I don't have any computer related degree
+### But I'm trying my best to get one
+### Then i can make this hobby a profession
+
 <!--
 **Rajmani7584/Rajmani7584** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
