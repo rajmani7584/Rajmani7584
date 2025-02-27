@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 #### Currently Coding is my hobby I don't have any computer related degree
-### But I'm trying my best to get one
+### But I'm trying my best to get admission into one
 ### Then i can make this hobby a profession
 
 <!--
